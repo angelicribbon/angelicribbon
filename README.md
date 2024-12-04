@@ -14,10 +14,10 @@ $\color{#db7093}{sweet!}$
 
 ![](https://64.media.tumblr.com/50781ff503f98c490bb494b83a486b75/4d5dfb7571c6fe3d-94/s75x75_c1/9910f24df576db2fdb7f36abac2f82fb253d4e8c.gifv)  $\color{#ffb6c1}{Angel~Confetti✩}$ $\color{#db7093}{And ~more ~names}$
 
-$\color{#db7093}{17~ He/It ✩}$ $\color{#ffb6c1}{Autistic~ ✩ Visual~ Snow~ Syndrome}$
+$\color{#db7093}{17~ He/It ✩ Latino}$ $\color{#ffb6c1}{✩ Autistic~ ✩ Visual~ Snow~ Syndrome}$
 
-$\color{#ffb6c1}{Awkward~n ~ Hyperverbal ✩}$ $\color{#db7093}{MLP ~nerd ~}$ ![](https://64.media.tumblr.com/24b8b6c6a402157148f6fd5823397fa8/tumblr_inline_pdg137E1jH1rhwzwl_75sq.gifv) 
+$\color{#ffb6c1}{Awkward~n ~ Hyperverbal ✩}$ $\color{#db7093}{MLP ~✩ OChem ~nerd }$ ![](https://64.media.tumblr.com/24b8b6c6a402157148f6fd5823397fa8/tumblr_inline_pdg137E1jH1rhwzwl_75sq.gifv) 
 
 $\color{#db7093}{Interests!}$
 
-![](https://64.media.tumblr.com/f6a842579e224a51589fe4959515c5fa/4d5dfb7571c6fe3d-04/s75x75_c1/208d8f6eea5b083208a803f2ee4ae6ac615a4d76.gifv) $\color{#db7093}{NSO✩~ Pokémon ✩}$ $\color{#ffb6c1}{FNAF~ ✩ Vocaloid✩~ SJSM✩~ BATIM}$
+![](https://64.media.tumblr.com/f6a842579e224a51589fe4959515c5fa/4d5dfb7571c6fe3d-04/s75x75_c1/208d8f6eea5b083208a803f2ee4ae6ac615a4d76.gifv) $\color{#db7093}{NSO✩~ Pokémon ✩}$ $\color{#ffb6c1}{FNAF~ ✩ Vocaloid✩~ SJSM✩~ Roblox}$
