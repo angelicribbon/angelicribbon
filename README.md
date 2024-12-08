@@ -19,7 +19,7 @@ $\color{#db7093}{I~ wouldn't ~mind!}$
 ![](https://64.media.tumblr.com/1e21f45ccea98508b69f6c07c772edd6/eca8b10a97918538-99/s75x75_c1/847cc6c1f1b81f2e62036ed83dfe604041eae8d6.gifv) $\color{#db7093}{info!!!}$
 
 ![](https://64.media.tumblr.com/4d8eebb246975839d6e8c3faee013a59/5b1e1f7fd3132ff5-b7/s100x200/235db8f6cb51a030c7c9aa6bb755fe9484dce983.pnj)
- ![](https://64.media.tumblr.com/dfc59383882fd5bd610ed44e4f50ccfd/65cbae88d830cf89-75/s75x75_c1/f7e0b07c8b3aa288db5418de72caa0c9134857b6.pnj)  $\color{#ffb6c1}{Angel/~Space✦ }$ $\color{#db7093}{And ~more ~names}$
+ ![](https://64.media.tumblr.com/dfc59383882fd5bd610ed44e4f50ccfd/65cbae88d830cf89-75/s75x75_c1/f7e0b07c8b3aa288db5418de72caa0c9134857b6.pnj)  $\color{#ffb6c1}{Angel/~(Sub)Space✦ }$ $\color{#db7093}{And ~more ~names}$
  
 $\color{#db7093}{17~ He/It ✦  Latino}$ $\color{#ffb6c1}{✩ Autistic~ ✦  Visual~ Snow~ Syndrome ✦ Asthma}$
 
