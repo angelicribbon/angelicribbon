@@ -23,7 +23,7 @@ $\color{#db7093}{I~ wouldn't ~mind!}$
  
 $\color{#db7093}{17~ He/It ✦  Latino}$ $\color{#ffb6c1}{✩ Autistic~ ✦  Visual~ Snow~ Syndrome ✦ Asthma}$
 
-$\color{#ffb6c1}{Awkward~n ~ Hyperverbal ✩}$ $\color{#db7093}{MLP ~✦  OChem ~nerd }$ ![](https://64.media.tumblr.com/24b8b6c6a402157148f6fd5823397fa8/tumblr_inline_pdg137E1jH1rhwzwl_75sq.gifv) 
+$\color{#ffb6c1}{HIGHLY! ! SELF-DESTRUCTIVE~n ~ Hyperverbal + Awkward ✩}$ $\color{#db7093}{MLP ~✦  OChem ~nerd }$ ![](https://64.media.tumblr.com/24b8b6c6a402157148f6fd5823397fa8/tumblr_inline_pdg137E1jH1rhwzwl_75sq.gifv) 
 
 ![](https://64.media.tumblr.com/5bd07e19739f03fd7b5fa300c5a3e5a2/fc360164e3cdc4be-fc/s75x75_c1/d633f8b537447612762d985d5588cae8d68d2951.gifv) $\color{#db7093}{Interests!}$
 
