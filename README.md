@@ -44,4 +44,4 @@ $\color{#ffb6c1}{+~ making~ up~ new~ words ~and ~being ~rude ~as ~a ~JOKE }$
 
 ![](https://media1.tenor.com/m/mjELUxUN0P4AAAAd/subspace-phighting-roblox-phighting.gif)
 
-specific dni towards people >_< . Izu, Mercilessfather, Blake/Kenny, someone w the word strawberry in their github or smthin like that i forgot but they r at the phighting area most of the time ^_^  lawlll if u r a big friend or smthin of this people pleaaasee dont talk to me or let me know so i can ALSO block you! 
+specific dni towards people >_< . Izu, Mercilessfather, Blake/Kenny, strwb3rri they r at the phighting area most of the time ^_^  lawlll if u r a big friend or smthin of this people pleaaasee dont talk to me or let me know so i can ALSO block you! 
