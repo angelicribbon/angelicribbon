@@ -1,6 +1,7 @@
 
 ![](https://64.media.tumblr.com/df217f0e4d434d0cf028de0ecaf9aa66/d882dbab576a6e62-f3/s1280x1920/4f8627478c448e4da139b22a10ddbd2744132be2.pnj)
 
+![](https://64.media.tumblr.com/8745406b0068d6a9953a91c536d64d3c/d882dbab576a6e62-f5/s100x200/31bae444b0cf9f97ec4aa6e70ab097547e482cdd.gifv)
  $\color{#af5e40}{GRAB ~ THE ~ FUCKING}$  $\color{#cf9769}{PIZZA}$
 
 ![](https://static.wikia.nocookie.net/pkmn-rejuvenation/images/2/20/Icon869.png/revision/latest?cb=20210321041553)
