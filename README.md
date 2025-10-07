@@ -14,7 +14,7 @@
 ![](https://64.media.tumblr.com/768378ecf5e727be0d59c2ac1d99077e/472132666f12866a-0f/s75x75_c1/d388ce5f683e78dc9ba50915ac818e728f4b4913.pnj)
  ![](https://64.media.tumblr.com/9e7b3c70ee48d35252d1646ac38f3ae1/472132666f12866a-49/s75x75_c1/ce906436df5e01a58e6cbdbe775ef7b3e98d917a.pnj)  $\color{#b46244}{Elliot/Eli 🍕 }$ $\color{#d9ac84}{And ~more ~names}$
  
-$\color{#ab5534}{17~ He/It 🍕 Bi}$ $\color{#cc9264}{✩ Autistic~ 🍕 w/Visual~ Snow~ Syndrome}$
+$\color{#ab5534}{18~ He/It 🍕 Bi}$ $\color{#cc9264}{✩ Autistic~ 🍕 w/Visual~ Snow~ Syndrome}$
 
 $\color{#d8af83}{JOYOUS~n ~ Hyperverbal ✩}$ $\color{#b56345}{MLP ~🍕 N°1 FAN }$
 
