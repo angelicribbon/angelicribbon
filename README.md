@@ -11,7 +11,6 @@
 
 ![](https://64.media.tumblr.com/bdba07f7f299ae7c16c853cd3ba46a03/472132666f12866a-82/s75x75_c1/bd7c0aa2bc1c781b018b18d5419fca56ad29840b.pnj) $\color{#cf9769}{Data!!!}$
 
-![](https://64.media.tumblr.com/768378ecf5e727be0d59c2ac1d99077e/472132666f12866a-0f/s75x75_c1/d388ce5f683e78dc9ba50915ac818e728f4b4913.pnj)
  ![](https://64.media.tumblr.com/9e7b3c70ee48d35252d1646ac38f3ae1/472132666f12866a-49/s75x75_c1/ce906436df5e01a58e6cbdbe775ef7b3e98d917a.pnj)  $\color{#b46244}{Elliot/Eli 🍕 }$ $\color{#d9ac84}{And ~more ~names}$
  
 $\color{#ab5534}{18~ It/He 🍕 gay}$ $\color{#cc9264}{✩ Audhd~ 🍕 w/Visual~ Snow~ Syndrome}$
@@ -20,4 +19,4 @@ $\color{#d8af83}{JOYOUS~n ~ Hyperverbal ✩}$ $\color{#b56345}{MLP ~🍕 N°1 FA
 
 ![](https://64.media.tumblr.com/bdba07f7f299ae7c16c853cd3ba46a03/472132666f12866a-82/s75x75_c1/bd7c0aa2bc1c781b018b18d5419fca56ad29840b.pnj) $\color{#cf9568}{Interests!}$
 
-![](https://64.media.tumblr.com/768378ecf5e727be0d59c2ac1d99077e/472132666f12866a-0f/s75x75_c1/d388ce5f683e78dc9ba50915ac818e728f4b4913.pnj) $\color{#b4563f}{WAAPP 🍕 ~ Roblox ✩}$ $\color{#c67f60}{FNAF~ 🍕  Vocaloid✩~ SJSM 🍕 ~ PKMNB/W}$
+![](https://64.media.tumblr.com/bacf9e527dd8e9c536d23d1912c23a4e/22446b416299184a-ac/s75x75_c1/635556afc0e1cd93149b64e27acd489cd6f9fd19.gifv) $\color{#b4563f}{WAAPP 🍕 ~ Roblox ✩}$ $\color{#c67f60}{FNAF~ 🍕  Vocaloid✩~ SJSM 🍕 ~ PKMNB/W}$
