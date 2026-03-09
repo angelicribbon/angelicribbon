@@ -7,6 +7,7 @@
 
 >ELLIOT BUILDER . 18 YO
 
+>VERY friendly puppything
 
 
 | Pronouns | wokeness | neurodivergency |
@@ -15,6 +16,8 @@
 | he/him | gay + aroace | visual snow |
 
 ![](https://64.media.tumblr.com/ffa9a2c03fd76f64f88619894c69eedf/01fd6a2f54773e91-e6/s250x400/ba50707158228268e7a8774817628eb84f5d9df2.pnj)
+
+>interact first plox i rlly LOVE to talk LOTS OF LOTS!
 
 > i rarely play but when i do feel free to interact! i usually just sit n crown ponies or spend time w friends!
 
