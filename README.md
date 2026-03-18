@@ -24,7 +24,7 @@
 
 > i rarely play but when i do feel free to interact! i usually just sit n crown ponies or spend time w friends!
 > 
-> I'm a hardcore fictkinnie of Elliot from WAAPP, Ink sans from ___!tale and the Underverse version and Subspace T.Mine from phighting!!
+> I'm a hardcore fictkinnie of Elliot from WAAPP, Ink sans from ___!tale and the Underverse version, Poob from regretevator and Subspace T.Mine from phighting!!
 >
 > If nyanythingg idm handing out my discord or adding new friends there as long as ure gonna be texting me a lottt!!!! i get shy during the first days of knowing eachother! sorta!! i mean most likely i do n the interactions r awkward but after a whilee i get comfy asf and SUPER annoying! 
 
