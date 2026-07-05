@@ -9,7 +9,8 @@
 
 >VERY friendly puppything!
 >
->or u can call me by any name of the chars that say "me" on them :3c
+>Yet please, please!! dont expect me to be all smiles n sunshines 24/7!
+>
 
 
 
