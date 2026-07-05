@@ -16,7 +16,7 @@
 | Pronouns | wokeness | neurodivergency |
 | :--- | :---: | ---: |
 | it/its | nonbinary | audhd |
-| he/him | gay + aroace | visual snow |
+| he/him | gay + demiaroace | visual snow |
 
 ![](https://64.media.tumblr.com/ffa9a2c03fd76f64f88619894c69eedf/01fd6a2f54773e91-e6/s250x400/ba50707158228268e7a8774817628eb84f5d9df2.pnj)
 
