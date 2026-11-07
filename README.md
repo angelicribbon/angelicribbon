@@ -23,7 +23,7 @@
 
 >interact first plox i rlly LOVE to talk LOTS OF LOTS!
 >
->most of the time w friends specially w my brodude bestfriend hi!!!
+>most of the time w friends specially w my brodude bfff hi!!!
 >
 >if im alone its mostly w2i!! yay!! i offtab LOTS i spend lotta time doing stuff while sitting so pls pls w2i!!
 >
