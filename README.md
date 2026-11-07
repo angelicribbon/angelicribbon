@@ -22,9 +22,13 @@
 ![](https://64.media.tumblr.com/ffa9a2c03fd76f64f88619894c69eedf/01fd6a2f54773e91-e6/s250x400/ba50707158228268e7a8774817628eb84f5d9df2.pnj)
 
 >interact first plox i rlly LOVE to talk LOTS OF LOTS!
-
+>
+>most of the time w friends specially w my brodude bestfriend hi!!!
+>
+>if im alone its mostly w2i!! yay!! i offtab LOTS i spend lotta time doing stuff while sitting so pls pls w2i!!
+>
 > i rarely play but when i do feel free to interact! i usually just sit n crown ponies or spend time w friends!
-> 
+>
 > I'm a hardcore fictkinnie of Elliot from WAAPP, Ink sans from ___!tale and the Underverse version, Poob from regretevator and Subspace T.Mine from phighting!!
 >
 > If nyanythingg idm handing out my discord or adding new friends there as long as ure gonna be texting me a lottt!!!! i get shy during the first days of knowing eachother! sorta!! i mean most likely i do n the interactions r awkward but after a whilee i get comfy asf and SUPER annoying! 
